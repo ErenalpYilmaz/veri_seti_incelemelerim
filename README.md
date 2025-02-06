@@ -1,0 +1,1 @@
+# veri_seti_incelemelerim
